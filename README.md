@@ -8,7 +8,7 @@
 
 (Active) Writer, SFX/Music creator
 
-(Very active) Manger lover and gym enjoyer
+(Very active) Mango lover and gym enjoyer
 
 Language= English 100% | Hindi 20% | Japanese 15%
 
